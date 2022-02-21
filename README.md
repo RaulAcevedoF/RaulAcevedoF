@@ -1,5 +1,5 @@
 ### Hola 👋, mi nombre es Raúl Acevedo Flores
-![](https://i.pinimg.com/564x/ed/5d/72/ed5d72baa6a359ece8aa3e5659ae172a.jpg)
+![](https://i.pinimg.com/564x/77/4f/c3/774fc3b753cd19c55168454717f2326c.jpg)
 
 Soy residente de ing. Sistemas Computacionales en Tecnológico Nacional de México campus Oaxaca.
 
